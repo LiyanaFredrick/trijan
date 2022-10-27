@@ -1,1 +1,2 @@
-Payiya {d}
+Payiya {dick}
+Dick {payiya}
